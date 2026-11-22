@@ -1,2 +1,2 @@
-# AL-KHYBER
+HOTEL AL-KHYBER
 Place of delicious desi Pakistani foods.
